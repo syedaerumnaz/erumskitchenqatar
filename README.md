@@ -1,2 +1,2 @@
 # erumskitchenqatar
-its homemade biryani business in Qatar
+Its homemade biryani business in Qatar
